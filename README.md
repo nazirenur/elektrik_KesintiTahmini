@@ -1,0 +1,1 @@
+# elektrik_KesintiTahmini
